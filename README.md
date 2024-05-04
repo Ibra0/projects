@@ -1,4 +1,4 @@
-
+Here are the projects that I am allowed to share so far due data protection rights:
 
 Projects decription:
 
